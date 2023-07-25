@@ -2,9 +2,9 @@
 
 导 航 永 久 域 名HttpS://taohav.cc
 
-⭐️ 👉 地址一 ：HttpS://taoh2913.com
+⭐️ 👉 地址一 ：HttpS://thtv056.cc
 
-⭐️ 👉 备用导航 ：HttpS://taoh2915.com
+⭐️ 👉 备用导航 ：HttpS://thtv057.cc
 
 ‼️‼️长按复制到浏览器里面访问以上网址‼️ ‼️
 
