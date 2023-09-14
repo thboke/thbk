@@ -1,10 +1,10 @@
 # 桃红色界 最新地址发布
 
-导 航 永 久 域 名HttpS://taohav.cc
+导 航 永 久 域 名:[taohav.cc](HttpS://thtv132.cc:8888/?channel=boke1)
 
-⭐️ 👉 地址一 ：HttpS://thtv132.cc:8888
+  ⭐️ 👉 地址一 ：[thtv132.cc](HttpS://thtv132.cc:8888/?channel=boke1)
 
-⭐️ 👉 备用导航 ：HttpS://thtv133.cc:8888
+⭐️ 👉 备用导航 ：[thtv133.cc](HttpS://thtv132.cc:8888/?channel=boke1)
 
 ‼️‼️长按复制到浏览器里面访问以上网址‼️ ‼️
 
