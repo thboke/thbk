@@ -1,10 +1,10 @@
 # 桃红色界 最新地址发布
 
-导 航 永 久 域 名:[taohav.cc](HttpS://thtv132.cc:8888/?channel=boke4)
+导 航 永 久 域 名:[taohav.cc](HttpS://thtv219.cc:8888/?channel=boke4)
 
-  ⭐️ 👉 地址一 ：[thtv132.cc](HttpS://thtv132.cc:8888/?channel=boke4)
+  ⭐️ 👉 地址一 ：[thtv219.cc](HttpS://thtv219.cc:8888/?channel=boke4)
 
-⭐️ 👉 备用导航 ：[thtv133.cc](HttpS://thtv132.cc:8888/?channel=boke4)
+⭐️ 👉 备用导航 ：[thtv220.cc](HttpS://thtv220.cc:8888/?channel=boke4)
 
 ‼️‼️长按复制到浏览器里面访问以上网址‼️ ‼️
 
