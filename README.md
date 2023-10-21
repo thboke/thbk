@@ -1,10 +1,10 @@
 # 桃红色界 最新地址发布
 
-导 航 永 久 域 名:[taohav.cc](HttpS://thtv219.cc:8888/?channel=boke4)
+导 航 永 久 域 名:[taohav.vip](HttpS://taohav.vip:8888/?channel=boke4)
 
-  ⭐️ 👉 地址一 ：[thtv219.cc](HttpS://thtv219.cc:8888/?channel=boke4)
+  ⭐️ 👉 地址一 ：[thtv073.cc](HttpS://thtv073.cc:8888/?channel=boke4)
 
-⭐️ 👉 备用导航 ：[thtv220.cc](HttpS://thtv220.cc:8888/?channel=boke4)
+⭐️ 👉 备用导航 ：[thtv077.cc](HttpS://thtv077.cc:8888/?channel=boke4)
 
 ‼️‼️长按复制到浏览器里面访问以上网址‼️ ‼️
 
@@ -14,4 +14,4 @@
 
 Telegram频道，欢迎关注！https://t.me/taoh_av
 
-谨记永久发布页哦！Https://taohav.cc
+谨记永久发布页哦！Https://taohav.vip
